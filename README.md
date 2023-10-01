@@ -5,5 +5,6 @@
 2. Конный спорт 
 3. Алмазная мозайка
 
-https://kartinkin.net/uploads/posts/2022-03/1646423529_73-kartinkin-net-p-moi-uvlecheniya-kartinki-85.jpg
+![istockphoto-820066628-170x170](https://github.com/OksanaBobrovnikova/homework-3-about_me/assets/139769661/eb1215c7-2c7f-4ea0-9d0d-3271f6d35fe0)
+
 
